@@ -1,0 +1,1 @@
+jaunaka verija 1
